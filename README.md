@@ -352,8 +352,6 @@ Final-Year Engineering Student
 LinkedIn:
 https://www.linkedin.com/in/richa-kumari-81548331a
 
-GitHub:
-https://github.com/Richa26kumari
 
 ---
 
